@@ -1,0 +1,2 @@
+# premium-ice-tong-001-ice-tong-forging-block-grip
+Stop losing track of your forging milestones and block grip measurements mid-project. This Notion template turns your ice tong crafting chaos into a streamlined, repeatable workflow.  Designed specifically for ice tong artisans and workshop leaders, this template eliminates scattered notes and forgotten steps. It gives you a single source of truth
